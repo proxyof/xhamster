@@ -1,6 +1,26 @@
 # Xhamster Proxy
 xHamster is a popular adult entertainment website offering a vast collection of pornographic videos, images, and live cam shows. Here's a detailed review of the site based on various aspects:
 
+Xhamster India Proxy List
+
+[US Proxy 1](https://sitenable.co/proxify.php?proxy=c2l0ZW5hYmxlLmNv&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
+[UK Proxy 2](https://freeproxy.io/proxify.php?proxy=ZnJlZXByb3h5Lmlv&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
+[Europe Proxy 3](https://siteget.net/proxify.php?proxy=c2l0ZWdldC5uZXQ=&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
+[Aus Proxy 4](https://sitenable.info/proxify.php?proxy=c2l0ZW5hYmxlLmluZm8=&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
+[Indian Proxy 5](https://filesdownloader.com/proxify.php?proxy=ZmlsZXNkb3dubG9hZGVyLmNvbQ==&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
+[Malaysia Proxy 6](https://sitenable.pw/proxify.php?proxy=c2l0ZW5hYmxlLnB3&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)  
+
+[Proxy 7](https://sitenable.top/proxify.php?proxy=c2l0ZW5hYmxlLnRvcA==&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)  
+
+[Proxy 8](https://sitenable.ch/proxify.php?proxy=c2l0ZW5hYmxlLmNo&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)  
+
+[Proxy 9](https://freeanimesonline.com/proxify.php?proxy=ZnJlZWFuaW1lc29ubGluZS5jb20=&site=aHR0cDovL3hoYW1zdGVyLmNvbQ==)
+
 ## Content and Features
 xHamster boasts a diverse range of adult content catering to numerous preferences and fetishes. The site includes videos, photo galleries, and user-uploaded content, ensuring a wide variety of material. It also offers live cam shows, allowing users to interact with performers in real-time. The platform is user-friendly with well-organized categories, making it easy to navigate and find specific types of content.
 
